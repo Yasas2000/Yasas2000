@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Yasas2000
-- 👀 I’m interested in Game Devoloping,specially PC
+- 👀 I’m interested in  AI and Game Devoloping,specially PC
 - 🌱 I’m currently learning at University of Moratuwa
 - 💞️ I’m looking to collaborate on Game devoloping Team
 - 📫 How to reach me ymeka2000@gmail.com
